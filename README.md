@@ -8,6 +8,6 @@
 
 ----------------------------------------------------------------------
 
-Please buy me a cup of coffee. Thank you!
+Please buy me a cup of coffee ☕️. Thank you!
 
 Paypal: paypal.me/HuyTran07 
